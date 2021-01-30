@@ -1,1 +1,1 @@
-This is the original work of mine
+Yep, this is the original work of mine. Feel free to use it though!
